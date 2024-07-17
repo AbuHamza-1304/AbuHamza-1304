@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Abu Hamza
 - 📍 Bengaluru, Karnataka, India
 - 👀 I’m fascinated by work profiles involving human interaction, client relationships, management, and the dynamic challenges they bring.
-- 🌱 I’m currently learning the art of analyzing data, the elegance of original content and creative writing, and the magic of open source.
+- 🌱 I’m currently learning the art of analyzing data, the elegance of original creative and technical writing, and the magic of open source.
 - 💞️ I want to collaborate on projects that change the world, inspire creativity, and solve real-world problems.
 - 📫 How to reach me:  Email >>> abuhamza1304@gmail.com   |  LinkedIn >>> https://www.linkedin.com/in/abuhamza1304/
 - 😄 Pronouns: He/His/Him
